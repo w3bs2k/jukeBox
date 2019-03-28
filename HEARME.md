@@ -8,6 +8,11 @@
  
 [FAIZA - Please Sing]( https://www.youtube.com/watch?v=wNsSQ_3_-0M) - (Dub Alchemy Studio)
 
+
+
+
+[Dune - Hardcore Vibes]( https://www.youtube.com/watch?v=oAlRtCyr0sQ) - ("This one is dedicated to all the ravers in the nation.")
+
 [Dr Motte & Westbam - One World One Future]( https://www.youtube.com/watch?v=CDJ20spGymE) - (techno»love parade 1998)
 
 [Kliment - Forest Of Wishes]( https://www.youtube.com/watch?v=hbUgBgCoERE) - (Ambient»Psy»Chill)
