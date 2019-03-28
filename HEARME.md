@@ -1,7 +1,6 @@
 
 
 # jukeBox
- :rocket:
  
  
  
@@ -18,4 +17,3 @@
 [Ed Solo & Deekline - Sensi]( https://www.youtube.com/watch?v=WEbKVclFeuE) - (Ragga»DnB)
  
  
-https://www.youtube.com/watch?v=ULzqOMZrmYw
