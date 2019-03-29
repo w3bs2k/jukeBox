@@ -6,6 +6,8 @@
 
 [Dj Fabio & Moon - Wheels Of Motion]( https://www.youtube.com/watch?v=dybXYEodqUo) - (progressive»SpinTwistRec)
 
+[Symphonix - True Reality (Interactive Noise RmX)]( https://www.youtube.com/watch?v=VC3qOz337to) - (progressive»psy)
+
 [Dune - Hardcore Vibes]( https://www.youtube.com/watch?v=oAlRtCyr0sQ) - (techno»1995)
 
 [Dj Fabio & Moon - Wanna Go ]( https://www.youtube.com/watch?v=IWcmNhyGelQ) - (progressive»SpinTwistRec)
