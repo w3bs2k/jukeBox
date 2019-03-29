@@ -1,12 +1,12 @@
 
 
 # jukeBox
-
-
  
 [FAIZA - Please Sing]( https://www.youtube.com/watch?v=wNsSQ_3_-0M) - (Dub Alchemy Studio)
 
-[Dj Fabio & Moon - Wheels Of Motion]( https://www.youtube.com/watch?v=dybXYEodqUo) - (progressive»SpinTwistRecords)
+[Dj Fabio & Moon - Wanna Go ]( https://www.youtube.com/watch?v=IWcmNhyGelQ) - (progressive»SpinTwistRec)
+
+[Dj Fabio & Moon - Wheels Of Motion]( https://www.youtube.com/watch?v=dybXYEodqUo) - (progressive»SpinTwistRec)
 
 [Liquid Soul & Vini Vici - Universe Inside Me]( https://www.youtube.com/watch?v=yvBK1rSUzTc) - (goa»progressive)
 
@@ -19,6 +19,8 @@
 [Candy - Rastafary Livity ]( https://www.youtube.com/watch?v=IUpplT0iQDg) - (Ragga»DnB)
 
 [MCD ft. Myesha & The Ragga Twins - Alright]( https://www.youtube.com/watch?v=E3PPapUIcqE) - (Ragga»DnB) 
+
+[Phaxe - Swing King]( https://www.youtube.com/watch?v=9NM1X3VZIVE) - (psy»2010)
 
 [KRS-One - Sound of da Police]( https://www.youtube.com/watch?v=LMmhkLlJF20) - (Ragga»DnB) 
  
